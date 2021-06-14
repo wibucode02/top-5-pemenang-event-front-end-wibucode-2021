@@ -4,9 +4,9 @@
 \
 <br>
 
-### Berikut merupakan 5 kontestan pemenang event kali ini  �
+### Berikut merupakan 5 kontestan pemenang event kali ini 
 
-
+<br>
 
 1.Menghatsu
 
